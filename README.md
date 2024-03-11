@@ -3,7 +3,7 @@
 
 ## About Me 🚀
 
-🎓 Computer Science Grad - University of Southern NewHampshire, April 2023  
+🎓 Computer Science Grad - University of Southern New Hampshire, April 2023  
 🛠️ On a mission to build AI-powered tools for **students**, **gamers**, **developers**, and **humans**  
 🎮 Super passionate about the **Life** and **Outdoors** Community  
 🍱 Also a fan of **meal prepping**, **Dieting**, and **Computer Games**  
