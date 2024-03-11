@@ -37,6 +37,8 @@ Want to chat about AI, speedrunning, or a free and open internet?
 ## Fun Facts 😄
 
 I love Fortnite!  
-I also love the beach!
-I Am a very big Miami Dolphins fan!
+I also love the beach!  
+I Am a very big Miami Dolphins fan! 
+
+
 
